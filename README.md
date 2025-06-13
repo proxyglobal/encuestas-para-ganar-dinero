@@ -20,4 +20,4 @@ El uso de un proxy se convirtió en mi herramienta esencial para facilitar mi tr
 
 Si deseas aumentar tus oportunidades de participación en encuestas internacionales y maximizar tus ganancias, [9Proxy](https://9proxy.com/?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89) es el aliado perfecto para superar las barreras geográficas. ¡No pierdas más tiempo!
 
-👉 [¡Optimiza tus ingresos!](https://9proxy.com/?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89) 👈
+👉 [¡Optimiza tus ingresos!](https://9proxy.com/pricing?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89) 👈
